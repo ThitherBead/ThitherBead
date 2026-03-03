@@ -6,3 +6,5 @@
 - Mim ser gen z.
 - Mim não analfabeto funcional. Mim escrever.
 - Mim dar crédito. Mim não ser arrombado. Foto de perfil: https://x.com/miratsu169/status/1964840374469595552
+
+(brazilian profile.)

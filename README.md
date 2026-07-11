@@ -1,10 +1,10 @@
-- Mim ser Thither Bead.
-- Mim ter conta no github desde 2023.
-- Mim fazer web.
-- Mim programar e etc etc etc.
-- Mim gostar de Hatsune Miku. Tu olhaste minha foto de perfil.
-- Mim ser gen z.
-- Mim não analfabeto funcional. Mim escrever.
-- Mim dar crédito. Mim não ser arrombado. Foto de perfil: https://x.com/miratsu169/status/1964840374469595552
+- me dabead.
+- me like miku.
+- me on github since 2023.
+- me find hard to program.
+- me doing web this year.
+- me gen z.
+- me know how to write.
+- me give credit for my pfp: https://x.com/miratsu169/status/1964840374469595552
 
 (brazilian profile.)
